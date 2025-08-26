@@ -1,1 +1,0 @@
-# gluecksrad-bvg-projekt
